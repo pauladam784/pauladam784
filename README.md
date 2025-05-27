@@ -12,8 +12,8 @@ At **Concept Billing Solutions**, we specialize in providing reliable and afford
 
 ### 📍 Location:
 **Concept Billing Solutions**  
-1234 Market Street, Suite 200  
-North Canton, OH 44720  
+6545 Market Ave. North STE 100
+North Canton, OH  44721
 United States  
 Serving local and nationwide healthcare providers
 
